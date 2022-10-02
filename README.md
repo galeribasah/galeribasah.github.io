@@ -1,1 +1,0 @@
-# galeribasah.github.io
